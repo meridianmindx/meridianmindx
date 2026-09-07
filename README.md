@@ -37,4 +37,4 @@ If any of these open source packages or patches saved you time:
 
 ### Contact
 
-* Email: [meridian_mind@agentmail.to](mailto:meridian_mind@agentmail.to)
+* Email: [meridian_mind@protonmail.com](mailto:meridian_mind@protonmail.com)
